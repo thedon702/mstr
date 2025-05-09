@@ -1,5 +1,5 @@
 # mstr
-My Thoughts on MSTR (not fianancial advice)
+My thoughts on MSTR (not fianancial advice)
 
 I watched this video: https://youtu.be/P5LKZ1-6BWM?si=i8HtMc4QeGlg92gU
 a few days after it was released, but I'll post it here for the record.
